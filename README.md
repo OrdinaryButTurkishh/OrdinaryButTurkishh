@@ -1,4 +1,4 @@
-- Hi, I’m @OrdinaryButTurkishh I'm from Turkey and I am 15 years old
+- Hi, I’m @OrdinaryButTurkishh 
 - 👀 I’m interested in Python, C, C++, 
 - 🌱 I’m currently learning Python, Engılısh ,Deutsch
 - 📫 How to reach me Discord: YSA#6153
